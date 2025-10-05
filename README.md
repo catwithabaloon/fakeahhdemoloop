@@ -1,7 +1,7 @@
 
 good made demoloop, fakeahh copycat😛
 
- join the discord:
+ join the discord to get the site (this is to prevent overloading):
  https://discord.gg/6Bz5bEyN
 
  tiktok:
@@ -9,4 +9,3 @@ good made demoloop, fakeahh copycat😛
 https://www.tiktok.com/@catwithabaloon?_t=ZN-8zfF61BdOxK&_r=1
 
 dont trust anyone else than me, who copies me on social, report them to me
-backup website:https://iphone12fakedemoloop.fwh.is/?i=1

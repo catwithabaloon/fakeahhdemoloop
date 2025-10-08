@@ -2,7 +2,7 @@
 good made demoloop, fakeahh copycat😛
 
  join the discord to get the site (this is to prevent overloading):
- https://discord.gg/6Bz5bEyN
+ https://discord.com/invite/HSEsGp5fzs
 
  tiktok:
 |catwithabaloon

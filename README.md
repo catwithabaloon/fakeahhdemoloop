@@ -3,7 +3,7 @@
 good made demoloop, fakeahh copycat😛
 
  join the discord to get the web app (this is to prevent overloading):
- https://discord.com/invite/HSEsGp5fzs
+https://discord.com/invite/C5KbqdaEN8
 
  tiktok:
 |catwithabaloon
